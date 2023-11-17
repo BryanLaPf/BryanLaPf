@@ -13,3 +13,4 @@ La taille des shémas t'as PEUR police 2 MAXIMUM, et encore si il n'y a pas d'er
 Breeeeeeeeeef 0️⃣
 
 Merci la team pour le soutiens !! : ![](https://komarev.com/ghpvc/?username=BryanLaPf&label=PROFILE+VIEWS)
+nul le cours j'ai pas raison la team ??!
