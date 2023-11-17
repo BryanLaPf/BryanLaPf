@@ -1,4 +1,4 @@
-# Pourqoi Packet Tracer est à bannir.
+# Pourquoi Packet Tracer est à bannir.
 ## Le logiciel en lui même
 
 Qu'on se le dise le logicile est *MOCHE*, nan sérieux c'est à vomir. 
